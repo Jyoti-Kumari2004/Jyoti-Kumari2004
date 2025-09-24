@@ -94,7 +94,7 @@ From backend architecture to UI polish, my goal is simple: create digital produc
 
 ## Connect
 📧 **Email**: btera7330@gmail.com  
-💼 **LinkedIn**: [linkedin.com/in/yourprofile](https://www.linkedin.com/in/jyoti-kumari-21274b28b/)  
+💼 **LinkedIn**: [linkedin.com/in/JyotiKumari](https://www.linkedin.com/in/jyoti-kumari-21274b28b/)  
 
 ---
 
